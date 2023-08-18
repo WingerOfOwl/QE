@@ -1,3 +1,3 @@
 jajan gorengan
 jajan mie goreng
-jajan es krim
+jajan minuman
