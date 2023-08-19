@@ -1,3 +1,3 @@
 
 jajan mie goreng
-jajan oranggit 
+jajan orang
