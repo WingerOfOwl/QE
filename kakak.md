@@ -1,2 +1,4 @@
 
-jajan mie goreng
+
+ja
+
