@@ -1,3 +1,2 @@
 
-jajan mie goreng
-jajan orang
+ja
